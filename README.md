@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Xarag
 - 👀 I’m interested in Anime, games,linux.
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on females
+
 - 📫 How to reach me i live in the box
 
 <!---
